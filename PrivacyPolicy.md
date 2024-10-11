@@ -34,6 +34,6 @@ We may update this Privacy Policy from time to time to reflect changes in our pr
 
 If you have any questions or concerns about this Privacy Policy or our practices, please contact us at:
 
-support@eamo5.com
+sadimdshaik@gmail.com
 
 By using PermiCheck, you acknowledge that you have read and understood this Privacy Policy.
